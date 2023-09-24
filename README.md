@@ -42,4 +42,6 @@ Projeyi Geliştirmeye Devam Etmekteyim O Yüzden Kaynak Dosyalarını Şuan Yük
 ![12](https://github.com/merenisler/Emlakci-Otomasyonu/assets/142229251/2f334e73-404e-4070-bc78-dea44720d156)
 
 
+https://bionluk.com/erenisler2
 
+https://medium.com/@eren.isler.123.321
